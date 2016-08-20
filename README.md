@@ -68,6 +68,7 @@ $295, average for the selected dates.  I suppose this is higher since it's a pop
 
 ##### Pick up in  Reno, Nevada
 $160 average for the selected dates.
-
+https://www.dropbox.com/s/bghpk33cnmu0cer/EST0023.pdf?dl=0
+https://www.dropbox.com/s/ri709wslzp8t44m/INV0032.pdf?dl=0
 ### Lodging
 I didnt do too much research into this area since i wasn't sure who else wanted to go, but family cabins run around $250ish per night.Might be able to get something cheaper. Not sure.
